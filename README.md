@@ -1,1 +1,1 @@
-Fake it till you make it !
+Humankind cannot gain anything without first giving something in return. To obtain, something of equal value must be lost.
